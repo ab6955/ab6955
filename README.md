@@ -20,6 +20,7 @@
 ## 📫 How to Reach Me
 - Email: [workingabd62@gmail.com](mailto:workingabd62@gmail.com)
 - LinkedIn: [https://www.linkedin.com/in/abdullah-ansari-38179328b/]
+- Twitter(X): https://x.com/Xplorer_Abdul
 
 ## 😄 Pronouns
 - He/Him
